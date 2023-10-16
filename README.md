@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Maxliam708
+- 👀 I’m interested in videogames and informatic while researching science
