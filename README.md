@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @Maxliam708
+- Currently on my first year at Epitech
 - 👀 I’m interested in videogames and informatic while researching science
